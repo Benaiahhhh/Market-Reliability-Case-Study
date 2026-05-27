@@ -78,4 +78,4 @@ Workers who NCNS face immediate, graduated restrictions — reduced shift visibi
 
 ## Author
 
-Eli — Data Science Student | [LinkedIn](your-linkedin-url) | [Portfolio](your-portfolio-url)
+Beniah — Data Science | www.linkedin.com/in/benaiah-okara |
